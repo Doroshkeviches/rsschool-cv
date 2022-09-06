@@ -2,7 +2,7 @@
 
 ## Contact information:
 + Phone number +375445477232
-+ Emale Doroshkeviches@yandex.ru
++ Email Doroshkeviches@yandex.ru
 + Instagram Doroshkeviches
 + Telegram Doroshkeviches
 
